@@ -12,10 +12,6 @@
 
 ![image](https://user-images.githubusercontent.com/51280276/112733788-11076480-8f68-11eb-8154-ec9b37f5a829.png)
 
-<br/>
-
-![image](https://user-images.githubusercontent.com/51280276/112733971-fbdf0580-8f68-11eb-884f-e57a43a728bc.png)
-
 
 <br/>
 
