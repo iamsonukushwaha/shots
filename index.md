@@ -4,23 +4,13 @@
 
 ![image](https://user-images.githubusercontent.com/51280276/112733892-9ab73200-8f68-11eb-80e9-8138a523f60a.png)
 
-
 <br/>
 
-<br/><br/><br/>
-
-
 ![image](https://user-images.githubusercontent.com/51280276/112733751-cf76b980-8f67-11eb-8ffc-9b82ed55421b.png)
-
-
-
 
 <br/>
 
 ![image](https://user-images.githubusercontent.com/51280276/112733788-11076480-8f68-11eb-8154-ec9b37f5a829.png)
-
-
-
 
 <br/>
 
